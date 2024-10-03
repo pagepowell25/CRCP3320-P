@@ -5,3 +5,5 @@
 [maria murad](https://github.com/mariamuradd)
 
 [Lizzy Mackenroth](https://github.com/lmackenroth)
+
+[Jaye Ryden](https://github.com/jayeryden)
