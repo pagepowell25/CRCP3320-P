@@ -17,3 +17,5 @@
 [Sophie Knox](https://github.com/SoKnox)
 
 [Maggie Nguyen](https://github.com/maggient)
+
+[Page Powell](https://github.com/pagepowell25)
