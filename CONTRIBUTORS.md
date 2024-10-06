@@ -15,3 +15,5 @@
 [Tanner Shepherd](https://github.com/tzshepherd)
 
 [Sophie Knox](https://github.com/SoKnox)
+
+[Maggie Nguyen](https://github.com/maggient)
