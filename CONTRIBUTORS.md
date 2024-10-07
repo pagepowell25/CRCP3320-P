@@ -17,3 +17,5 @@
 [Sophie Knox](https://github.com/SoKnox)
 
 [Maggie Nguyen](https://github.com/maggient)
+
+[Makayla Alston](https://github.com/Makayla-A)
