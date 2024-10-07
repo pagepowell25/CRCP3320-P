@@ -18,4 +18,9 @@
 
 [Maggie Nguyen](https://github.com/maggient)
 
+[Page Powell](https://github.com/pagepowell25)
+
+[Cameron Tofani](https://github.com/camerontofani)
+
+
 [Karis Park](https://github.com/khpark9)
