@@ -4,4 +4,8 @@
 
 ***[Makayla Alston](https://makayla-a.github.io/)***
 
-***[Jaye Ryden](https://jayeryden.github.io/JayeRyden-Portfolio/)***
+
+***[Tanner Shepherd](https://tzshepherd.github.io/)***
+
+😊 [Maria Murad](https://mariamuradd.github.io/) 
+
