@@ -10,4 +10,6 @@
 
 🏄‍♀️ [Page Powell](https://pagepowell25.github.io/)
 
-😬 [Prescott Lau](https://bikeracer9.github.io/)
+😬 [Prescott Lau](https://bikeracer9.github.io
+
+✴️ [Sophie Knox](https://soknox.github.io/)
