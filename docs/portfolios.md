@@ -17,3 +17,5 @@
 ✴️ [Sophie Knox](https://soknox.github.io/)
 
 ***[Maggie Nguyen](https://maggient.github.io/)***
+
+⭐️ [Karis Park](https://khpark9.github.io/)
